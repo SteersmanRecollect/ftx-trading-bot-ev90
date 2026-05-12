@@ -1,4 +1,4 @@
-# 
+# Get the ultimate deribit trading bot with vip deribit trading bot Addon | take-profit + perpetual-trading. Featuring take-profit and perpetual-trading, it's the best choice for
 
 
 
